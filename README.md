@@ -2,6 +2,6 @@
 
 - 🍊 I’m currently a bottle of Marmalade 🍊
 - 🌱 I’m currently learning Godot
-- 😄 Fun fact: My name is He, but my Pronouns: She/her.
+- 😄 Fun fact: Two baka cats
 
 -baka 9️
